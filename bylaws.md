@@ -177,7 +177,7 @@ The Secretary shall record the votes and keep the minutes of all meetings and pr
 
 #### (d) Treasurer
 
-The Treasurer shall receive and deposit in appropriate bank Accounts all monies of the Association and shall disburse such funds as directed by resolution of the Board of Directors; shall sign all checks and promissory notes of the Association; keep proper books of account; cause an audit of the Association books to be made by a public accountant at the completion of each fiscal year; and shall prepare an annual budget and a statement of income and expenditures to be presented to the membership at its regular meetings; and deliver a copy to each of the members. 
+The Treasurer shall receive and deposit in appropriate bank Accounts all monies of the Association and shall disburse such funds as directed by resolution of the Board of Directors; shall sign all checks and promissory notes of the Association; keep proper books of account; cause a review of the Association books to be made by a public accountant at the completion of each fiscal year; and shall prepare an annual budget and a statement of income and expenditures to be presented to the membership at its regular meetings; and deliver a copy to each of the members. 
 
 ## ARTICLE IX. COMMITTEES
 
